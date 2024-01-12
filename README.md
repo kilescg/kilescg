@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kilescg
 - 👀 I’m interested in Robotics, Embedded System and Everything about Computer 
 - 🌱 I’m currently learning everything that excites me 
-- 💞️ I’m looking to collaborate on a good company that support employee
+- 💞️ I’m looking to collaborate on an amazing project. feels free to contact me!
 - 📫 How to reach me kittitol@scg.com
 
 <!---
